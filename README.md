@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/casmx">¡HAZ CLIC Y RECLAMA TU BONO!</a>
+
 # Caliente México 2025: Tu Destino Total para Deportes, Casino y Entretenimiento
 
 Descubre la revolución del entretenimiento digital en México con Caliente, la plataforma líder que redefine la experiencia del juego responsable y el entretenimiento deportivo para 2025. Desde los emocionantes encuentros en el Caliente Stadium hasta la innovadora Caliente TV, nuestra plataforma integra perfectamente el mundo del deporte y el casino en una experiencia única.
