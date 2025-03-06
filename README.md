@@ -26,7 +26,7 @@ Colaboración con organizaciones de prevención de adicciones
 La plataforma implementa las últimas tecnologías de seguridad cibernética y cumple con todas las regulaciones mexicanas de juego en línea, garantizando una experiencia de entretenimiento segura y transparente para todos nuestros usuarios.
 Caliente: Donde la Pasión se Encuentra con la Innovación - Tu Destino Total de Entretenimiento 2025
 
-casino caliente
+<a href="https://calientecasino-mx.mx">casino caliente</a>
 
 caliente
 
